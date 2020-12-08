@@ -7,4 +7,4 @@ This website has all of my work on it with screen shots to every part of the cod
 This website only gets updated when I have created a new project or have somthing that might not be correact on the website
 
 
-If you would like more information about this website email me at connor.sedman@justicemc.oc.uk
+If you would like more information about this website email me at c.sedman@vatpac.org
